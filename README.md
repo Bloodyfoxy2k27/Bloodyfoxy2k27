@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming and coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 09014508581 or 08130384497
-- 😄 Pronouns: ...
+- 😄 Pronouns: no idea
 - ⚡ Fun fact: I've got none
 
 <!---
